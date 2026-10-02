@@ -1,1 +1,1 @@
-### Thingking Machine
+### Assisting Machine
